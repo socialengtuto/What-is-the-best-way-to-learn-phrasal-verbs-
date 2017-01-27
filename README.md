@@ -1,0 +1,2 @@
+# What-is-the-best-way-to-learn-phrasal-verbs-
+You shouldn't worry about memorising loads and loads of them right now, there are too many. However, get familiar with the idea of these phrases and consider the rest of the sentence, as well as the sentences before and after, for a general idea of what they mean. If you are speaking English frequently or reading English stories and books, idioms will get easier and easier for you.
